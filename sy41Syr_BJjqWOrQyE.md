@@ -1,0 +1,193 @@
+<p dir="auto"><strong>2026年07月31日 22时58分28秒(UTC+8)</strong></p>
+
+<hr></hr>
+
+<h2 tabindex="-1" class="heading-element" dir="auto">一、国内时政</h2>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">两市超3800只个股上涨 赚钱效应回暖一扫此前阴霾。</h3>
+
+<p dir="auto">三一重工一季度扭亏为盈 股价反弹修复此前下跌趋势。<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/234205.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">第三十届生活用纸高峰论坛召开 太阳纸业担任轮值主席单位</h3>
+
+<p dir="auto">五月A股收官 科创50全月大跌超5%创年内最大月跌幅。<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/799977.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">新冠疫苗概念异动 多家药企股价大涨回应新毒株研发。</h3>
+
+<p dir="auto">同仁堂股价涨停 中药配方颗粒试点结束迎来发展新机遇<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/337674.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">合肥城建发布异动公告：与长鑫科技无任何业务往来。</h3>
+
+<p dir="auto">资金狂减热门ETF 年内最牛ETF榜单出炉半导体霸榜前三<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/377941.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">南网能源发布8.5亿定增预案 投向AI用PCB扩产等项目。</h3>
+
+<p dir="auto">地方十五五规划密集落地 投早投小投硬科技成共识<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/494880.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">中国中免股价反弹 海南免税五一销售超预期刺激情绪回暖。</h3>
+
+<p dir="auto">全国一体化算力网加快建设 赋能数字经济高质量发展<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/319606.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">美联储维持利率不变 外资抢筹A股三大指数高开高走</h3>
+
+<p dir="auto">台积电称同类技术已用十年 回应黄仁勋对华为韬定律评价。<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/898823.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">万科推进债权展期 表示将继续深化战略聚焦核心业务。</h3>
+
+<p dir="auto">新冠疫苗概念异动 多家药企股价大涨回应新毒株研发<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/727230.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">五月A股收官 科创50全月大跌超5%创年内最大月跌幅</h3>
+
+<p dir="auto">庄家为谁投赌局 *ST庄股退市前上演最后疯狂。<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/959480.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">半导体板块冲高回落 早盘涨超3%午后转跌。</h3>
+
+<p dir="auto">伊朗发射导弹 特朗普审核停火协议油价波动加剧<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/584516.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">特斯拉股价大涨 带动A股供应链个股集体跟涨</h3>
+
+<p dir="auto">两市成交额不足8000亿 观望情绪升温短期震荡为主。<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/159821.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">资源类ETF遭遇回撤 石化化工ETF单月下跌超14%。</h3>
+
+<p dir="auto">供销社概念异动拉升 多只个股涨停封板<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/342001.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">合肥城建发布异动公告：与长鑫科技无任何业务往来。</h3>
+
+<p dir="auto">老庄后撤 新股慎起 次新股炒作降温 提示追高风险。<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/319333.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">泡泡玛特段永平举牌后大涨 段永平单日浮盈超10亿港元</h3>
+
+<p dir="auto">两市成交额不足8000亿 观望情绪升温短期震荡为主。<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/551450.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">两市超3800只个股上涨 赚钱效应回暖一扫此前阴霾。</h3>
+
+<p dir="auto">五月A股收官 科创50全月大跌超5%创年内最大月跌幅<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/187770.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">第三十届生活用纸高峰论坛召开 太阳纸业担任轮值主席单位</h3>
+
+<p dir="auto">*ST创兴收到上交所退市决定 预计最后交易日为6月29日。<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/205540.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">城市更新十五五规划出炉 预计带动十万亿级投资。</h3>
+
+<p dir="auto">国企改革概念上涨 新一轮改革方案临近预期升温<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/221648.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">可转债打新收益回升 本月三只新股上市平均盈利超300元</h3>
+
+<p dir="auto">大盘重现转机 机构称赚钱窗口将延续到三季度<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/175370.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">特斯拉股价大涨 带动A股供应链个股集体跟涨</h3>
+
+<p dir="auto">龙头雄起 后市仍可为 机构看好新能源赛道行情延续。<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/834793.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">一季报披露完毕 新势力车企开启体系能力之争。</h3>
+
+<p dir="auto">大普微斩获二十厘米涨停 收盘价报816元刷新上市新高。<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/041769.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">游戏版号下发 本月86款国产游戏获版号板块情绪回暖。</h3>
+
+<p dir="auto">可转债打新收益回升 本月三只新股上市平均盈利超300元<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/679734.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">小鹏汽车G9改款上市 订单量破万带动美股ADR上涨</h3>
+
+<p dir="auto">猪肉价格连续上涨 猪企股价反弹机构认为拐点已至。<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/926487.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">老庄后撤 新股慎起 次新股炒作降温 提示追高风险。</h3>
+
+<p dir="auto">合肥城建发布异动公告：与长鑫科技无任何业务往来<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/489336.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">贵州茅台股价突破2000元 机构称估值回归合理区间。</h3>
+
+<p dir="auto">地方十五五规划密集落地 投早投小投硬科技成共识<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/374471.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">两市缩量震荡 逾三千股飘绿 资金抱团AI核心标的</h3>
+
+<p dir="auto">血制品行业进入深度寻底 多家企业降价抢份额格局生变。<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/206566.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">五穷六绝七翻身？五月收官沪指小幅收跌0.12%</h3>
+
+<p dir="auto">可转债打新收益回升 本月三只新股上市平均盈利超300元<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/456243.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">农业ETF五月下跌13% 霍尔木兹叙事退潮资金出逃。</h3>
+
+<p dir="auto">长江存储办理辅导备案 拟A股IPO冲击存储第一股<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/485144.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">*ST创兴收到上交所退市决定 预计最后交易日为6月29日。</h3>
+
+<p dir="auto">六月金股名单出炉 机构重点推荐消费与高端制造方向<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/017571.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">保险板块异动拉升 中国人寿涨超5%带动指数翻红。</h3>
+
+<p dir="auto">资金狂减热门ETF 年内最牛ETF榜单出炉半导体霸榜前三<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/292092.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">同仁堂股价涨停 中药配方颗粒试点结束迎来发展新机遇。</h3>
+
+<p dir="auto">五月A股收官 科创50全月大跌超5%创年内最大月跌幅<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/486334.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">AI算力霸榜 25只基金近一年回报超300%</h3>
+
+<p dir="auto">庄家为谁投赌局 *ST庄股退市前上演最后疯狂。<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/010178.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">泰达股份因涉嫌信披违法违规 实控人被证监会立案调查</h3>
+
+<p dir="auto">早盘A股跳水尾盘拉升 神秘资金尾盘抄底护盘。<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/579347.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">同仁堂股价涨停 中药配方颗粒试点结束迎来发展新机遇。</h3>
+
+<p dir="auto">猪肉价格连续上涨 猪企股价反弹机构认为拐点已至。<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/828268.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">南向资金净流入超百亿 抄底港股互联网龙头</h3>
+
+<p dir="auto">地产板块全线爆发 万科碧桂园集体涨停<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/191949.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">华金证券给予沃特股份买入评级 看好复合材料增长空间</h3>
+
+<p dir="auto">光芯片国产替代窗口期到来 国内厂商实现群体性突破<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/676672.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">泰达股份因涉嫌信披违法违规 实控人被证监会立案调查</h3>
+
+<p dir="auto">中金公司披露合并东兴证券信达证券细节 合并后营收跻身第三<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/455634.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">湖南省工程机械租赁协会高机分会正式成立 规范行业发展。</h3>
+
+<p dir="auto">资金狂减热门ETF 年内最牛ETF榜单出炉半导体霸榜前三<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/363183.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">黄仁勋评华为韬定律：是突破而非威胁</h3>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">杰富瑞下调富途控股目标价 从224美元降至170.5美元。</h3>
+
+<p dir="auto">南网能源发布8.5亿定增预案 投向AI用PCB扩产等项目。<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/014454.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">A股极致分化 硬更硬软愈软马太效应持续发酵。</h3>
+
+<p dir="auto">电子气体需求激增 芯片血液频现供应缺口企业加速扩产。<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/641835.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">腾讯控股回购股份 单日回购金额超10亿港元提振市场信心</h3>
+
+<p dir="auto">下周A股解禁压力较大 5只个股解禁比例超50%<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/712316.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">工信部明确：炼铁炼钢产能置换比例不低于1.5:1。</h3>
+
+<p dir="auto">城市更新十五五规划出炉 预计带动十万亿级投资。<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/360138.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">多方偷袭得逞 盘弱后市堪忧 成交量低迷难以支撑反弹。</h3>
+
+<p dir="auto">比亚迪发布腾势N9闪充版 起售价40.98万元订单火爆。<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/969538.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">菊乐股份过会 成为今年A股IPO过关第79家</h3>
+
+<p dir="auto">美国迎来娃娃炒股实验 千万新生儿一出生就买ETF。<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/607798.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">伊朗发射导弹 特朗普审核停火协议油价波动加剧</h3>
+
+<p dir="auto">巴奴火锅就食品安全问题致歉 正分批联系顾客补偿。<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/849202.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">延江股份终止重大资产重组 股价跌停开盘回应公告</h3>
+
+<p dir="auto">一季报披露完毕 新势力车企开启体系能力之争。<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/556642.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto" class="heading-element">地方十五五规划密集落地 投早投小投硬科技成共识</h3>
+
+<p dir="auto">物业管理板块上涨 房企资产重组利好物业板块估值修复<br><br> | 来源：<code>www.blog.vbsgj.cn/Article/details/586163.sHtML</code></p>
+
+<h3 tabindex="-1" dir="auto"
